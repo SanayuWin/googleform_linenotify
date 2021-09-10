@@ -49,4 +49,4 @@
 
 #### Thanks
 
-Sanayu
+Winny Freedom
