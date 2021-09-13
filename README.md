@@ -49,4 +49,4 @@
 
 #### Thanks
 
-Winny Freedom
+Win'ny Freedom
